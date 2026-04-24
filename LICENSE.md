@@ -1,4 +1,4 @@
-
+smart evade Script offers the most advanced evade Script, with auto-farm and esp. Perfect for dominating any match.
 
 
 
